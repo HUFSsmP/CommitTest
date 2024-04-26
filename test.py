@@ -8,7 +8,7 @@ Exit 출구
 Fuck my life
 Girl Generation
 Height Weight
-Irene
+Irene Red Velvet
 June
 Kate
 LA
