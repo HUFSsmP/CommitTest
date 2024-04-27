@@ -6,7 +6,7 @@ Canada 단풍국?
 Date month
 Exit 출구
 Fuck my life
-Girl
+Girl Generation
 Height
 Irene
 June
