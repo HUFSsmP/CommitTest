@@ -7,7 +7,7 @@ Date month
 Exit 출구
 Fuck my life
 Girl Generation
-Height
+Height Weight
 Irene
 June
 Kate
