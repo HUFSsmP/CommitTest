@@ -5,7 +5,7 @@ Banana juice
 Canada 단풍국?
 Date month
 Exit 출구
-Fuck
+Fuck my life
 Girl
 Height
 Irene
