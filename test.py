@@ -4,7 +4,7 @@ Apple pie
 Banana juice
 Canada 단풍국?
 Date month
-Exit
+Exit 출구
 Fuck
 Girl
 Height
