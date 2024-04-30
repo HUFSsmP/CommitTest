@@ -3,7 +3,7 @@
 Apple pie
 Banana juice
 Canada 단풍국?
-Date
+Date month
 Exit
 Fuck
 Girl
