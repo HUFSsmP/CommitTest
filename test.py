@@ -10,7 +10,7 @@ Girl
 Height
 Irene
 June
-K
+Kate
 L
 M
 N
