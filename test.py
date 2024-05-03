@@ -13,7 +13,7 @@ June
 Kate
 LA
 Memory
-N
+Nano
 O
 P
 Q
