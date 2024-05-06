@@ -6,7 +6,7 @@ Canada
 Date
 Exit
 Fuck
-G
+Girl
 H
 I
 J
