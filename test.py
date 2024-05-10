@@ -17,7 +17,7 @@ Nano
 Ocean
 Puppy
 Question
-R
+Rest
 S
 T
 U
