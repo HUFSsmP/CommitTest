@@ -1,7 +1,7 @@
 # 커밋 해보기
 #first commit
 Apple
-B
+Banana
 C
 D
 E
