@@ -1,6 +1,6 @@
 # 커밋 해보기
 #first commit
-A
+Apple
 B
 C
 D
