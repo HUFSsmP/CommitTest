@@ -19,7 +19,7 @@ Puppy
 Question
 Rest
 Sister
-T
+Tender
 U
 V
 W
