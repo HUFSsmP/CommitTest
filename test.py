@@ -1,7 +1,7 @@
 # 커밋 해보기
 #first commit
 Apple pie
-Banana
+Banana juice
 Canada
 Date
 Exit
